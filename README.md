@@ -22,6 +22,6 @@
 
 
 + Hobbies : Leitura, Musica, Games & Esportes ❤️
-+ Ocupação: Estudante da Cesar School (Primeiro periodo) 📖
++ Ocupação: Estudante da Cesar School (Terceiro periodo) 📖
 + Linguas: Português e Inglês (C2) 🌐
 + Aspirante a Game Designer 🎮
